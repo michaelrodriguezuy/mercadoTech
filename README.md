@@ -1,6 +1,6 @@
 # mercadoTech
 Michael Rodriguez
-Ignacio Lima genio de la vida
+Ignacio Lima genio de la vida, mentira sos un gil de goma
 Joaquin Nakle
 
 
