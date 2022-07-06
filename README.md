@@ -1,6 +1,6 @@
 # mercadoTech
 Michael Rodriguez
-Ignacio Lima
+Ignacio Lima genio de la vida
 Joaquin Nakle
 
 Azul
